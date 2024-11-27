@@ -33,7 +33,7 @@ I'm open to collaborating on:
 - **Innovative solutions** that make an impact
 
 ## 📫 How to Reach Me
-- [LinkedIn](www.linkedin.com/in/mahajanrutuja)
+- [LinkedIn](https://www.linkedin.com/in/mahajanrutuja)
 
 ## 😄 Pronouns: She/Her
 
